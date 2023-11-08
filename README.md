@@ -1,1 +1,1 @@
-# rsschool-cv
+https://Biordis.github.io/rsschool-cv/
