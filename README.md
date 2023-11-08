@@ -1,1 +1,1 @@
-https://Biordis.github.io/rsschool-cv/cv
+https://Biordis.github.io/rsschool-cv/
